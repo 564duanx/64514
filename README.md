@@ -23,4 +23,4 @@
 如果你正在寻找一个真正意义上的日本AV免费平台，资源多、更新快、播放顺、界面清爽、隐私有保障——欢迎收藏本站，每天第一时间获取最新日本AV！
 
 
-<span style="display:none;">[Canonical link](https://github.com/564duanx ）</span>
+<span style="display:none;">[Canonical link](https://github.com/564duanx/64514 ）</span>
